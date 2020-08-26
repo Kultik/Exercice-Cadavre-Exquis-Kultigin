@@ -1,1 +1,1 @@
-*##Sophomore*
+*Sophomore*
